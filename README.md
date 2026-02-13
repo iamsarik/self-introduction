@@ -1,4 +1,4 @@
-# Self Introduction - Nimesh Agarwal
+# Self Introduction - Sarik Srivastava
 
 Hello,
 
